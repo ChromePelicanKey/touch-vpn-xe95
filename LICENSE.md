@@ -1,4 +1,4 @@
-
+Enhance your Betternet experience with Betternet updated Client: dynamic-IP & end-to-end-encryption, the #1 client. Includes dynamic-IP and end-to-end-encryption for a safer and
 
 
 
